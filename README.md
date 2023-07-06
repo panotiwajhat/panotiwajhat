@@ -1,0 +1,4 @@
+- 👋 Hi, I’m wajahat
+- 👀 I’m interested in ...Web Development
+- 🌱 I’m currently learning ... Advnced Dimploma in Software Engineering
+- 📫 How to reach me ...by my business Whatsapp No +923308425176 or by my email address panotiwajhatabbas@gmail.co
